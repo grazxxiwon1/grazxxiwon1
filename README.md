@@ -1,0 +1,11 @@
+- 👋 Hi, I’m @grazxxiwon1
+- 👀 COMMING SOON
+- 🌱 COMMING SOON
+- 💞️ COMMING SOON
+- 📫 COMMING SOON
+- 😄 COMMING SOON
+- ⚡ FCOMMING SOON
+
+<!---
+INTRODUCTION 4 AGUSTUS 2024 ><
+--->
